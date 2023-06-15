@@ -1,5 +1,5 @@
 Hey, I'm from Kyiv nice to meet you lol
-
+but I live in Warsaw😭😭
 duck
 
 duck
